@@ -1,4 +1,4 @@
-
+Experience king legacy like never before with updated king legacy Scripts, the #1 Script. Includes custom skins and aimbot for unbeatable performance.
 
 
 
